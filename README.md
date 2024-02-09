@@ -1,2 +1,2 @@
 # mw.Private-International-Center-for-Security-and-Safety-Services
-Soon in Saudi Arabia, the opening of the Academy of the International Center for Security and Safety Services is considered the first and only academy in the world that provides training and education for private civil security at the main headquarters and remotely. It is open to all nationalities in several languages ​​at the A1 lev
+Soon in Saudi Arabia, the opening of the Academy of the International Center for الخاص Security and Safety Services is considered the first and only academy in the world that provides training and education for private civil security at the main headquarters and remotely. It is open to all nationalities in several languages ​​at the A1 lev
